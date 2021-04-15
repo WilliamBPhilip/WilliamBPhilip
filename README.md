@@ -4,7 +4,9 @@
 
 **1** YouTube: 魏煜科生
 
-**2** Facebook： https://www.facebook.com/william.philip.5891  https://www.facebook.com/魏煜科生-100310375234312/
+**2** Facebook： https://www.facebook.com/william.philip.5891
+
+https://www.facebook.com/%E9%AD%8F%E7%85%9C%E7%A7%91%E7%94%9F-100310375234312	
 
 **3** Twitter： @1962341091_QQ
 
